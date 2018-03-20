@@ -6,3 +6,12 @@
 影片:	
 	How To Make Drone At Home (Quadcopter) Easy
 		https://www.youtube.com/watch?v=nw6ktelfn3c
+	How to Make a Homemade Drone
+		https://www.youtube.com/watch?v=cQA3iUgC-DQ
+	How to make a flying drone at home | you can make it very easily 
+		https://www.youtube.com/watch?v=NSGF1YC_Ze0
+	How to Make Flying Drone At home 
+		https://www.youtube.com/watch?v=0GPAyW29HJQ
+	How to make a quadcopter at home | DIY drone - very easy and simple mathod
+		https://www.youtube.com/watch?v=D_lfdWVjdqI
+	
